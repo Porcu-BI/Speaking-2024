@@ -10,3 +10,4 @@ For further inquiries, collaborations, volunteering, or speaking invitations, fe
 - [Personal Website](https://www.porcu.bi)
 - [Linkedin](https://www.linkedin.com/in/valeriejunk/)
 - [Twitter](https://twitter.com/porcubi) 
+- [Youtube](https://www.youtube.com/@PorcuBI)
